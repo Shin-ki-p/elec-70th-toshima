@@ -1,1 +1,0 @@
-# elec-70th-toshima
